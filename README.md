@@ -1,2 +1,0 @@
-# Portofolio.Ku
-Hii
